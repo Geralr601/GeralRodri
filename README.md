@@ -1,2 +1,2 @@
-# GeralRodri
+# Geral Rodriguez
 Geraldin Rodriguez 
